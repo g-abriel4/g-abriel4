@@ -12,7 +12,7 @@
 
 ⤷ Shey/they pronouns, mostly prefer she/her.
 
-⤷ Grey-aroace and orchidsexual
+⤷ Grey-aroace and orchidsexual, angelkin!
 
 ⤷ Fluent in both English and Romanian.
 
