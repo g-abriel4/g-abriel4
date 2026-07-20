@@ -28,20 +28,20 @@
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
 
-⋆ - Read my strawpage and pronouns page please as they both contain important info about me that you should know about before you interact with me!!
+⋆ - Read my strawpage and pronouns page please as they both contain important info about me that you should know before you interact with me!!
 
-⋆ - Int is always welcome! I am open to making new friends unless stated otherwise!
+⋆ - Int is always welcome! I am open to making new friends despite my awkwardness
 
 ⋆ - I block and hide freely. I might hide you if you're clogging up my screen or covering me indirectly. Sorry! >m<
 
-⋆ - I am almost always offtab, so whisper to interact at all times!
+⋆ - I am almost always offtab, so whisper to interact at all times! Feel free to cuddle w/ me unless stated otherwise in name
 
 # ✦•┈๑⋅⋯ DNI / IWVEC ⋯⋅๑┈•✦
 
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
 
-𖹭 ֶָ֢  - Proshippers and darkshippers. 
+𖹭 ֶָ֢  - Proshippers/darkshipper/whatevershipper please dni
 
 𖹭 ֶָ֢  - Forsaken fandom IWVEC unless I know you or interacted with you before.
 
@@ -54,6 +54,8 @@
 𖹭 ֶָ֢  - AI supporters, Trump bootlickers, far right people EEEEEEYUCK dni!!!
 
 𖹭 ֶָ֢  - Radqueers, incest supporters DNI DNI DNI YUCK YUCK YUCK
+
+𖹭 ֶָ֢  - Countryhumans fandom please DNI
 
 𖹭 ֶָ֢  - Standard DNI criteria!!
 
