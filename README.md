@@ -36,6 +36,8 @@
 
 ⋆ - I am almost always offtab, so whisper to interact at all times! Feel free to cuddle w/ me unless stated otherwise in name
 
+⋆ - Tonetags are heavily appreciated and reccomended, as I struggle reading tone thru messages. I will ask for clarity when needed though!
+
 # ✦•┈๑⋅⋯ DNI / IWVEC ⋯⋅๑┈•✦
 
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
