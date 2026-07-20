@@ -1,4 +1,5 @@
-<img width="981" height="327" alt="83c3ac9ada0ec80460d9e3744eb44c59" src="https://github.com/user-attachments/assets/2fc845b7-2de9-4240-8872-637a067e1e11" />
+<img width="701" height="438" alt="1c312beaf247b78619edda11d47dfa99" src="https://github.com/user-attachments/assets/40aa2b7e-5f42-4000-9c86-6c84734fa8b7" />
+
 <div align="center">
 <h1> Welcome! ꉂ(˵˃ ᗜ ˂˵)  </h1>
 </div>
@@ -20,7 +21,7 @@
 
 ⤷ In a lot of fandoms.
 
-⤷ Metalhead and goth!!
+⤷ Metalhead and goth!! Really into frutiger aero and frutiger subaesthetics ^_^
 
 # ✮`,— Before you interact .ᐟ.ᐟ
 
@@ -56,7 +57,9 @@
 
 𖹭 ֶָ֢  - Standard DNI criteria!!
 
-<img width="736" height="414" alt="3d16309273a9ae19fd5b34399be65f72" src="https://github.com/user-attachments/assets/3f1a73ac-58e9-43aa-9412-ab5089efd082" />
+
+<img width="400" height="400" alt="d315f6255229207c84ef2aa40a647ca4" src="https://github.com/user-attachments/assets/ed452380-71a8-4245-802c-6b9281acf55f" />
+
 
 <div align="center">
 <h2>“ And do you like the way it feels? ”</h2>
