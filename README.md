@@ -19,9 +19,11 @@
 
 ⤷ My main interests are theology and angelology, I also like technology and biology!!
 
-⤷ In a lot of fandoms.
+⤷ In a lot of fandoms... "(O_O)
 
 ⤷ Metalhead and goth!! Really into frutiger aero and frutiger subaesthetics ^_^
+
+⤷ Full time bio student \(>v<)/
 
 # ✮`,— Before you interact .ᐟ.ᐟ
 
@@ -36,7 +38,9 @@
 
 ⋆ - I am almost always offtab, so whisper to interact at all times! Feel free to cuddle w/ me unless stated otherwise in name
 
-⋆ - Tonetags are heavily appreciated and reccomended, as I struggle reading tone thru messages. I will ask for clarity when needed though!
+⋆ - Tonetags are heavily appreciated and reccomended, as I struggle reading tone thru messages. I will ask for clarification when needed though!
+
+⋆ - I am extremely sensitive, please be kind or I might cry :(
 
 # ✦•┈๑⋅⋯ DNI / IWVEC ⋯⋅๑┈•✦
 
