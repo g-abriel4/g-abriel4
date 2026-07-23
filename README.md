@@ -23,7 +23,7 @@
 
 ⤷ Metalhead and goth!! Really into frutiger aero and frutiger subaesthetics ^_^
 
-⤷ Full time bio student \(>v<)/
+⤷ Full time bio student and aspiring microbiologist!! \(>v<)/
 
 # ✮`,— Before you interact .ᐟ.ᐟ
 
@@ -38,28 +38,28 @@
 
 ⋆ - I am almost always offtab, so whisper to interact at all times! Feel free to cuddle w/ me unless stated otherwise in name
 
-⋆ - Tonetags are heavily appreciated and reccomended, as I struggle reading tone thru messages. I will ask for clarification when needed though!
+⋆ - Tonetags are heavily appreciated and reccomended, as I struggle reading tone thru messages. I will ask for clarification when needed though! :D
 
-⋆ - I am extremely sensitive, please be kind or I might cry :(
+⋆ - I am sensitive and my mood/energy tends to fluctuate. If I act dry or distant please don't take it personally!
 
 # ✦•┈๑⋅⋯ DNI / IWVEC ⋯⋅๑┈•✦
 
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
 
-𖹭 ֶָ֢  - Proshippers/darkshipper/whatevershipper please dni
+𖹭 ֶָ֢  - Proshippers/darkshipper/whatevershipper please dni.
 
 𖹭 ֶָ֢  - Forsaken fandom IWVEC unless I know you or interacted with you before.
 
 𖹭 ֶָ֢  - Callie/Evan and their friends please DNI.
 
-𖹭 ֶָ֢  - People over 19 IWVEC as I'm 15!
+𖹭 ֶָ֢  - People over 19 IWVEC as I'm 15! 20+ do not interact you will be blocked.
 
-𖹭 ֶָ֢  - Music gatekeepers get out you stink!! yuck!!!!! dni!!!!
+𖹭 ֶָ֢  - Gatekeepers (ESPECIALLY music gatekeepers) DNI you're weird.
 
 𖹭 ֶָ֢  - AI supporters, Trump bootlickers, far right people EEEEEEYUCK dni!!!
 
-𖹭 ֶָ֢  - Radqueers, incest supporters DNI DNI DNI YUCK YUCK YUCK
+𖹭 ֶָ֢  - Radqueers, incest DNI
 
 𖹭 ֶָ֢  - Countryhumans fandom please DNI
 
