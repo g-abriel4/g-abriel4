@@ -59,11 +59,15 @@
 
 𖹭 ֶָ֢  - AI supporters, Trump bootlickers, far right people EEEEEEYUCK dni!!!
 
-𖹭 ֶָ֢  - Radqueers, incest DNI
+𖹭 ֶָ֢  - Radqueers, incest DNI... obviously.
 
-𖹭 ֶָ֢  - Countryhumans fandom please DNI
+𖹭 ֶָ֢  - Countryhumans fandom please DNI. Specifically the ones who like Third Reich or USSR y'all a bunch of freaks /neg
 
-𖹭 ֶָ֢  - Standard DNI criteria!!
+𖹭 ֶָ֢  - Ranfren fandom please IWVEC or dniuid... I've seen a lot of Nazis, darkshippers and stuff like that in this fandom and I prefer to keep my distance from the people in it.
+
+𖹭 ֶָ֢  - Standard DNI criteria from here!
+
+𖹭 ֶָ֢  - Will be blocked and hidden if the above are overstepped
 
 
 <img width="400" height="400" alt="d315f6255229207c84ef2aa40a647ca4" src="https://github.com/user-attachments/assets/ed452380-71a8-4245-802c-6b9281acf55f" />
