@@ -25,6 +25,8 @@
 
 ⤷ Full time bio student and aspiring microbiologist!! \(>v<)/
 
+⤷ Artist... heh... tucks hair behind ear
+
 # ✮`,— Before you interact .ᐟ.ᐟ
 
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
