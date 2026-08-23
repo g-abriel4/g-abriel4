@@ -13,7 +13,7 @@
 
 ⤷ Shey/they pronouns, mostly prefer she/her.
 
-⤷ Grey-aroace orchidsexual and uranic, angelkin + robotkin!
+⤷ Grey-aroace orchidsexual uranic and agender, angelkin + robotkin!
 
 ⤷ Fluent in both English and Romanian.
 
