@@ -9,11 +9,11 @@
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
 
-⤷ Name's Gabriel, but I also go by Samuel or Michael.
+⤷ Name's Gavriel, but I also go by Nyen or Michael.
 
-⤷ Shey/they pronouns, mostly prefer she/her.
+⤷ Any/all pronouns. My preference tends to change, but I will always prefer being referred to with they/them pronouns.
 
-⤷ Grey-aroace orchidsexual uranic and agender, angelkin + robotkin!
+⤷ Grey-aroace, orchidsexual, uranic, agender and lotusromantic. Angelkin and robotkin
 
 ⤷ Fluent in both English and Romanian.
 
