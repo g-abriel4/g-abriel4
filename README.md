@@ -9,9 +9,9 @@
 ‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿
 
 
-⤷ Name's Gavriel, but I also go by Nyen or Michael.
+⤷ Name's Gavriel, but I also go by a lot of different names.
 
-⤷ Any/all pronouns. My preference tends to change, but I will always prefer being referred to with they/them pronouns.
+⤷ Any/all pronouns. My preference tends to change, but I will always prefer being referred to with they/them pronouns. I also use xe/xem and hy/hym pronouns.
 
 ⤷ Grey-aroace, orchidsexual, uranic, agender and lotusromantic. Angelkin and robotkin
 
